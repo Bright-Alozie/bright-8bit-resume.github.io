@@ -1,0 +1,1 @@
+# bright-8bit-resume.github.io
